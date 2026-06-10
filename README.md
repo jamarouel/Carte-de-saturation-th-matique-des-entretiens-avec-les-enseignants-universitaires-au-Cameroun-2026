@@ -1,2 +1,2 @@
-# Carte-de-saturation-th-matique-des-entretiens-avec-les-enseignants-universitaires-au-Cameroun-2026
+# Carte-de-saturation-thématique-des-entretiens-avec-les-enseignants-universitaires-au-Cameroun-2026
 La carte de saturation thématique est le produit de huit entretiens semi-dirigés menés entre mai et juin 2026 avec des enseignants issus du recrutement spécial initié par le président Paul Biya. Elle contient quatre niveaux d’analyse de saturation : saturé (présent chez 7 à 8 répondants), convergent (5 à 6), émergent (3 à 4) et isolé (1 à 2). 
